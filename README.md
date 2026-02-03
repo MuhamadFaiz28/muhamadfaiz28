@@ -1,1 +1,1 @@
-Ini repository muhamad faiz kelas XII a
+Ini repository muhamad faiz kelas XII A
